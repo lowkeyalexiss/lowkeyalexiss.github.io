@@ -5,7 +5,6 @@ Hey I'm lowkeyalexiss also known as alexis and i love playing; Minecraft, ULTRAK
 - Photosynthesis (Not Out Yet): [Modrinth](https://modrinth.com/mod/photosynthesis-mod)
 - The Harrows (Not Out Yet): [Modrinth](https://modrinth.com/mod/the-harrows)
 - Naming Conventions (Not Out Yet): [Modrinth](https://modrinth.com/mod/naming-conventions)
-All these projects are things that i want to change within minecraft for example Photosynthesis overworld generation and adding more nature things and The Harrows improving the end though Naming Conventions is just a nickname mod so yeah.
 
 <h1>Socials</h1>
 - Twitch:
